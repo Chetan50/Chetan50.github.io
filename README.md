@@ -1,2 +1,2 @@
-# Praveen-Pallagani.github.io
+# Chetan Mylapilli.github.io
 Personal Website
